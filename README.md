@@ -15,8 +15,8 @@ Energetic fun guy that likes to stay up late ![](https://emojipedia-us.s3.dualst
 
 ## Hobbies
 - gym
-- Soccer
-- Movies
+- soccer
+- movies
 - gaming 
     * LoL
     * Counter-strike
