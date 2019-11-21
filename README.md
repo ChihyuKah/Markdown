@@ -1,5 +1,6 @@
 # chihyu Kah
-*Knowledge is power!*
+
+# *"Knowledge is power"!*
 ![](https://scontent-bru2-1.xx.fbcdn.net/v/t1.0-9/p960x960/74788918_3007829162564751_6855078558184767488_o.jpg?_nc_cat=100&_nc_ohc=SLLBYf3lwUUAQlN_3_D48ndTh3lbfNc5NuKc0WSrkrnAbA2iMqLxu3_EA&_nc_ht=scontent-bru2-1.xx&oh=dc000a9497a38180104997d45296d686&oe=5E7F0486)
 ## Me in 1 sentence
 Energetic fun guy that likes to stay up late ![](https://emojipedia-us.s3.dualstack.us-west-1.amazonaws.com/thumbs/120/google/223/owl_1f989.png)
